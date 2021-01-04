@@ -11,9 +11,9 @@
 
 - 💬 Ask me about **any Tech Thing.**
 
-- 📫 How to reach me :**shurikenxofficial@gmail.com**
+- 📫 How to reach me: **shurikenxofficial@gmail.com**
 
-- ⚡ Fun fact **I SUCK XD**
+- ⚡ Fun fact: **I SUCK XD**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
