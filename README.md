@@ -1,8 +1,6 @@
 <h1 align="center">Hi 👋, I'm ShurikeN</h1>
 <h3 align="center">A Tech Enthusiast from India</h3>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=shurikenxofficial&label=Profile%20views&color=0e75b6&style=flat" alt="shurikenxofficial" /> </p>
-
 - 🔭 I’m currently working on **new videos for YouTube.**
 
 - 🌱 I’m currently learning **Python.**
