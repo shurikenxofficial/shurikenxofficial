@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **any Tech Thing.**
 
-- 📫 How to reach me **Email ID - shurikenxofficial@gmail.com, [YouTube - ShurikeN](https://youtube.com/shurikenyt/), Discord - ShurikeN#6622**
+- 📫 How to reach me **shurikenxofficial@gmail.com**
 
 - ⚡ Fun fact **I SUCK XD**
 
